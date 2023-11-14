@@ -9,7 +9,7 @@ Would you like them here or there? I would not like them here or there. I would 
 
 Congratulations! Today is your day. You're off to Great Places! You're off and away! (Grade 3)
 
-Ant Man was a highly unusual boy in many ways. For one thing, he hated the summer holidays more than any other time of year. For another, he really wanted to do his homework, but was forced to do it in secret, in the dead of the night. And he also happened to be a wizard. (Grade 5)
+Ant Man was a highly unusual boy in many ways. For one thing, he hated the summer holidays more than any other time of year. For another, he really wanted to do his homework, but was forced to do it in secret, in the dead of the night. And he also happened to be a wizard. (Grade 4)
 
 In my younger and more vulnerable years my father gave me some advice that I've been turning over in my mind ever since. (Grade 7)
 
